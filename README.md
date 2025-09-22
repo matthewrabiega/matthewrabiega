@@ -61,7 +61,7 @@ Derzeit arbeite ich an einem multimedialen Projekt, das Film, Design, Webtechnik
 
 ## 🤝 Let’s connect
 
-🎧 Auf meinem Discord: [Beitreten](https://discord.gg/HcqKn7CVN5)  
+🎧 Komm auf den Imaginary+ Discord: [Beitreten](https://discord.imaginaryplus.de)  
 📍 Aktuell: immer auf der Suche nach neuen, spannenden Herausforderungen!
 
 ---
